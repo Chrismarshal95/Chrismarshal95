@@ -2,7 +2,7 @@
 - 👀 I’m interested in Chill vibe and super focus 
 - 🌱 I’m currently learning stay young 
 - 💞️ I’m looking to collaborate on ..
-- 📫 How to reach me ... if for the Fraud Bible Pack,I will be like Batman,secrectly reach you
+- 📫 How to reach me ... jbearzflyyu.95@gmail.com
 
 <!---
 Chrismarshal95/Chrismarshal95 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
